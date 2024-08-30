@@ -2,7 +2,7 @@
 - 👀 I’m interested in cars and fire
 - 🌱 I’m currently learning pies and python
 - 💞️ I’m looking to collaborate on creating a motion-tracking camera with the pie
-- 📫 How to reach me by email at bryceg496@lpsk12.org
+- 📫 How to reach me by email at bryce.gold8@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I do search and rescue
 
